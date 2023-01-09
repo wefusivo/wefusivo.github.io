@@ -1,2 +1,0 @@
-# wefusivo.github.io
-Wefusivo
